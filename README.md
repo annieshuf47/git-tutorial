@@ -1,3 +1,3 @@
 Git Tutorial 
-Annie ShufordO
-
+Annie Shuford
+UChicago Student Resource Guide
